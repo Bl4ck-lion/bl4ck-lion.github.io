@@ -1,0 +1,2 @@
+# xznsenpai.github.io
+Ala
